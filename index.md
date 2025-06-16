@@ -1,3 +1,3 @@
 ---
-title: Welcome to my blog!
+title: Coming Soon "The Doggy Style Gym"
 ---
